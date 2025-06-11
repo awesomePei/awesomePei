@@ -1,5 +1,5 @@
 # 🤓 About Me
-- Currently an undergraduate majoring in Information Management Department of NTU
+- Currently an undergraduate student of Information Management Department of NTU
 - Caffeine overdose 😴
 - Chinese, English, un peu français
 
